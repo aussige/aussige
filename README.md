@@ -5,6 +5,8 @@
 
 ![IMG_2019](https://github.com/user-attachments/assets/4aab9ced-d720-48cb-941a-d59a93be63b1)
 
+![picmix com_12986207](https://github.com/user-attachments/assets/22c9a406-c3f9-4959-8704-2725e9364b10)
+
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/8ee7e741-ca21-46de-8aa0-c24448c0a2f3" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/023a0bf9-4237-4538-8848-a3d765e3ca44" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/783a8ef3-be23-4dd3-8e90-78fe5eeaaf7e" />
